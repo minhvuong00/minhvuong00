@@ -1,2 +1,2 @@
-- 👋 Hi, I’m  Đặng Minh Vương (18079521)
-- 🌱 I’m currently learning  trường Đại học Công nghiệp tp Hồ Chí Minh
+- 👋 Xin chào, tôi là Đặng Minh Vương (mssv: 18079521)
+- 🌱 Tôi đang học ở trường Đại học Công nghiệp tp Hồ Chí Minh
